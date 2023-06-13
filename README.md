@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @lfednail
 - 👀 I’m interested in ...le code  et je souhaiterais en apprendre  plus
-- 🌱 I’m currently learning  le code comme jr le peux
+- 🌱 I’m currently learning  le code comme je le peux
 - 💞️ I’m looking to collaborate on ...
 @- 📫 How to reach me  voici mon  insta:fednailPro,mon twitter:@Fednail07
 
